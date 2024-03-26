@@ -12,3 +12,7 @@ YT: https://www.youtube.com/@rppschannel
 TT: https://www.tiktok.com/@rppsmemes
 
 VK: https://vk.com/pvppveserver
+
+Discord: https://discord.gg/8jp9FdFkhW (нужна синхронизация со сервером)
+
+Контент: http://steamcommunity.com/sharedfiles/filedetails/?id=2073520921 
